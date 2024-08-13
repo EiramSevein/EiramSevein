@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EiramSevein
 - 👀 I’m interested in everything.
-- 🌱 I’m currently learning N/A.
+- 🌱 I’m currently learning N/A I just wanna say I'm doing my best.
 - 💞️ I’m looking to collaborate on someone who's oks person.
 - 📫 How to reach me just message me ES or something idk how can you reach me.
 - 😄 Pronouns: .idk.
